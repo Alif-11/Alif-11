@@ -1,1 +1,1 @@
-## Check out my other account [here] (https://github.com/Alif-Abdullah0)!
+## Check out my other account [here](https://github.com/Alif-Abdullah0)!
